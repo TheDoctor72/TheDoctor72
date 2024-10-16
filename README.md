@@ -1,4 +1,3 @@
-#TheDoctor72
 Hi, I'm TheDocotr72 
 and I'm here to publish my projects.
 #WHAT WILL I POST
